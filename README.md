@@ -16,5 +16,3 @@ I acknowledge the holy days of cultures around the world, and practice the ones 
 
 ## Memories
 For a full life, I recommend a hike or run to establish flow within the body. Then, a bit of yoga right after to release any deeper blocks or stresses. Then prepare a meal, as small as a cup of tea, or many courses as you have need for. Finally, enjoy the meal. Even when not shared with acquaintances, afficianados, friends or family, your meals become a very strong, very deep well of memories that will enrich your life. Do your best to make good ones! For what do we truly have but our memories?
-
-###### P.S. The subtitle is also alphabetical. I do love me some good wordplay.

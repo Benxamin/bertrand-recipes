@@ -1,7 +1,7 @@
-BANANA PUDDING
+# BANANA PUDDING
 
-Ingredients
------------
+## Ingredients
+
 3/4 cup granulated Sugar
 1/3 cup all-purpose Flour
 1 dash salt
@@ -13,8 +13,8 @@ Ingredients
 35-45 shortbread Cookies ("Nilla" wafers)
 5-6 medium bananas
 
-Method
-------
+## Method
+
 0. Combine 1/2 cup Sugar, Flour and Salt in a double boiler.
 1. Blend Egg yolks until lemony yellow. Whisk in Milk. 
 2. Whisk into the dry ingredients already on the double boiler.

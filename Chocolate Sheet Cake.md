@@ -1,5 +1,7 @@
 # Chocolate Sheet Cake
 
+This recipe was written down in 1986, by a great baker my mother knew. My mom mailed to me the black-ink, handwritten index card with lovely woodcut roosters in the margin. The frosting originally called for Oleo, so I will have to experiment.
+
 ## Ingredients
 
 ### Cake
@@ -17,7 +19,7 @@
 - 1 Teaspoon Baking Soda
 
 ### Frosting
-- 1/2 Cup Butter
+- 1/2 Cup Butter (Margarine? Lard? Crisco?)
 - 3 Tablespoon Cocoa
 - 1 Box Powdered Sugar (16 oz Confectioners)
 - 1 Teaspoon Vanilla

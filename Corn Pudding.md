@@ -5,12 +5,12 @@ These times and temps were prefected at 5,000 ft above sea level.
 
 ## INGREDIENTS
 
-4 Tbsp Butter (salted)
-1 can Corn
-1 can Corn, cream-style
-3 Eggs
-1 box Corn Bread Mix, Jiffy brand
-1 Cup Sour Cream
+- 4 Tbsp Butter (salted)
+- 1 can Corn
+- 1 can Corn, cream-style
+- 3 Eggs
+- 1 box Corn Bread Mix, Jiffy brand
+- 1 Cup Sour Cream
 
 ## METHOD
 

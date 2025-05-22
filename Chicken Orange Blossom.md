@@ -2,18 +2,18 @@
 
 Ingredients
 -----------
-6 Chicken Thighs, deboned
-1/2 Cup Orange Brandy
-1/2 Cup Water
-1/2 Cup Brown Sugar, packed
-1 Teaspoon Salt, iodized, table.
-1 Ginger, fresh, thumb-sized nodule
-1 Tablespoon Black Pepper, ground, 16 mesh.
-6 Garlic cloves, smashed, or one per Chicken Thigh
-3 Green Cardamom Pods, pressed until they split open
-1 Guajillo Chili, dried
-Soy Sauce
-6 Orange slices, optional garnish
+- 6 Chicken Thighs, deboned
+- 1/2 Cup Orange Brandy
+- 1/2 Cup Water
+- 1/2 Cup Brown Sugar, packed
+- 1 Teaspoon Salt, iodized, table.
+- 1 Ginger, fresh, thumb-sized nodule
+- 1 Tablespoon Black Pepper, ground, 16 mesh.
+- 6 Garlic cloves, smashed, or one per Chicken Thigh
+- 3 Green Cardamom Pods, pressed until they split open
+- 1 Guajillo Chili, dried
+- Soy Sauce, drizzle
+- 6 Orange slices, optional garnish
 
 Method
 ------

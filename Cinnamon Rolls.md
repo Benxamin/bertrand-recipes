@@ -3,7 +3,7 @@
 - 1 Cup Milk, warm
 - 1 tsp Sugar, white, granulated
 - 2 tsp Yeast, active, dry
-- 3 ounces Butter, melted
+- 3 ounces (6 Tbsp or 3/4 Stick) Butter, melted
 - 3 Cups Flour, white, all-purpose or bread
 - 4 Egg Yolks
 - 1/4 tsp Salt[^1]

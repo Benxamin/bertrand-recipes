@@ -30,13 +30,30 @@ Use a kitchen stand mixer with a dough hook attachment, on low:
 - Rest of the warm milk
 - 3 Cups Flour, a few tablespoons at a time until you have some bulk. 
 
-Dough should be quite soft and yellow.
+After all the flour is worked-in, the Dough should be quite soft and yellow, almost tacky. 
 
-## 2. Rolls
+## 2. Proof 90 Minutes
+
+- Scrape/pour the Dough into Large Glass or Earthenware Bowl and cover with a Tea Towel.
+- Place covered Bowl into oven or microwave with a container of hot water for humidity. 
+- Leave to raise for 90 minutes.
+
+## 3. Rolls
+
+- Gently punch down dough.
+- Scrape out onto floured surface.
+- Roll out to a large rectangle.
+
+- Cover with Caramel mix
+- Roll
+- SliceDough Log into individual rolls and place in buttered 18 x 9" pan.
+
+## 4. Second Proof 60 Minutes
+
+- Then bake 350°F for 25 minutes or until golden brown on top.
 
 
-
-## 3. Glaze, Frosting or Syrup
+## 5. Glaze, Frosting or Syrup
 
 ### Glaze
 
@@ -49,7 +66,7 @@ Dough should be quite soft and yellow.
 Add first three ingredients into a bowl in this order. Then mix with a fork. Add Vanilla last to ensure that everything is incorporated.
 
 - 1 Tbsp Butter, room temperature
-- 1 Cup Powedered Sugar
+- 1 Cup Powdered Sugar
 - 1 Tbsp Heavy Cream
 - 1 tsp Vanilla
 

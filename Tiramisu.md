@@ -3,8 +3,8 @@
 ## Ingredients
 
 - 8 egg yolks
-- 1/4 cup sugar
-- (2) Sara Lee Poundcakes - Located in your grocer's dessert freezer.
+- 1/4 cup sugar (4 Tablespoons for the yolks)
+- (2) Sara Lee Poundcakes - Located in your grocer's dessert freezer, or 40 Ladyfinger cookies DeLallo Savoiardi
 - 6 oz of Coffee Liqueur
 - 6 oz of Espresso
 - 2 cups Heavy Whipping Cream
@@ -20,7 +20,7 @@ Mix equal parts Espresso and Coffee Liqueur. You can't have too much of either! 
 
 ### 1. Whipped Cream
 
-Whip the cream and sugar in their own large bowl until stiff peaks form. Make soft whipped cream; not too fluffy. 
+Whip the cream and sugar in their own large bowl until soft peaks form. Make soft whipped cream; not too fluffy. 
 You want to eat it, not use it as mortar.
 
 ### 2. Zabaglione
@@ -43,6 +43,6 @@ Slice poundcake into < 3/8" thick pieces. Or use Lady fingers.
 - Shave/microplane bittersweet chocolate over the poundcake. It should be tiny, tiny flakes and chunks. Just a sprinkle of bitter to counter all the sweetness.
 - Using the spatula, spread half the Filling over the layered poundcake.
 - Repeat with the next layer of poundcake, coffee liquid, chocolate bits, and filling. Two thick layers is plenty!
-- Sprinkle a heavy layer of cinnamon on top.
+- Sprinkle a heavy layer of cinnamon or bittersweet cocoa on top.
 - Refridgerate until serving.
  
